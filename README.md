@@ -5,19 +5,17 @@
 
   [PLEASE CHECK OUT TPTM](https://youtu.be/kBsBKOwP-YQ?si=UnZOzR3PtHqWE0yX)
   
-  <img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/tumblr_b7a02b6d3481ac088cda6f45ffeb72bb_5d3fd62a_2048%20(2).png" width="260">
+  <img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/tumblr_235e7062af03b9568c626feb92b602d3_d415d6b0_2048.jpg" width="260">
 
-$\text{\color{#b7ffe2}MEDKIT / DOVE - 19YRS . SHE/HE}$\
-$\text{\color{#a5ff3f}FREYJA YUME . PHYSMENT DISABLED}$\
-$\text{\color{#ed002b}TRANSFEM LESBIAN C+H ALWAYS}$\
-$\text{\color{#3a2737}AC1 - fish-ofillet}$\
-$\text{\color{#3a2737}AC2 - chickenburger26352}$\
-$\text{\color{#3a2737}AC3 - betweencomputerandman}$
+$\text{\color{#e3637c}SILAS (SIGH-LASS) - 19YRS . HE/SHE}$\
+$\text{\color{#abcbf1}RECIPRO LESBIAN . PHYSMENT DISABLED}$\
+$\text{\color{#e3637c}CUDDCOMFORT C+H ALWAYS PLEASE!}$\
+$\text{\color{#abcbf1}ac! - chimericgene + ditf}$
 
-[ⅰ . twitter](https://x.com/medtraitor_) [ⅱ . rentry](https://rentry.co/medkiting) [ⅲ . ata](https://medtraitor.atabook.org)
+[ⅰ . twitter](https://x.com/medtraitor_) [ⅱ . rentry - wip](https://rentry.co/wipd) [ⅲ . ata](https://medtraitor.atabook.org)
 
-  <img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/tumblr_f8c6f815fec30899e2ab70daeadba0fc_6c37c119_1280%20(1).png" width="60"><img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/tumblr_0d43ba06b8cc34acdb963c5ab99c7145_c5c5abf2_1280%20(1).png" width="60">
+  <img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/tumblr_ef7288f8e4d93dbf750c1c6924b7d913_24150256_1280.png" width="60">
     
-<img src="https://komarev.com/ghpvc/?username=templesmedic&label=RAZOR_BLADES,_SUGARCOATED&color=ec002b&style=plastic"> </p>
+<img src="https://komarev.com/ghpvc/?username=templesmedic&label=LET'S..._DO..._THIS...!&color=e3637c&style=plastic"> </p>
 </div></b></p>
     </td>
