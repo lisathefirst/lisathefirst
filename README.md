@@ -12,7 +12,7 @@ $\text{\color{#dd5c00}RECIPRO LESBIAN . PHYSMENT DISABLED}$\
 $\text{\color{#ff7f00}CUDDCOMFORT C+H ALWAYS PLEASE!}$\
 $\text{\color{#dd5c00}ac - chezzzzpoppp}$
 
-[ⅰ . twitter](https://x.com/medtraitor_) [ⅱ . rentry - wip](https://rentry.co/wipd) [ⅲ . ata](https://medtraitor.atabook.org)
+[ⅰ . twitter](https://x.com/medtraitor_) [ⅱ . carrd](https://medtraitor.carrd.co) [ⅲ . ata](https://medtraitor.atabook.org)
 
   <img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/7ebee8bad2088a3b5c12df746df3e41e.jpg" width="60">
     
