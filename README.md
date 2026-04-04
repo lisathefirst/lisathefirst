@@ -1,2 +1,2 @@
 
-![](https://komarev.com/ghpvc/?username=veilsaints&style=flat-square&color=598788&label=the+marked)
+![](https://komarev.com/ghpvc/?username=veilsaints&style=flat-square&color=000a65&label=the+marked)
